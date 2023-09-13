@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ahwinchan
+- 👋 Hi, I’m Winnie Chan
 - 👀 I’m interested in jogging, ride bicycle and hiking
 - 🌱 I’m currently learning data analysis
 - 📫 How to reach me : email: winnie_chan782003@yahoo.com.sg
